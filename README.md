@@ -1,0 +1,2 @@
+# shualeduri
+pirveli shualeduri
